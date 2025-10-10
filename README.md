@@ -7,7 +7,7 @@
               Teen / 12
 
     Planet Lover and Space Lover
-    Call My Sun or Just My actual name!
+    Call Me Sun or Just My actual name!
 
 
        ╰──────༺♡༻──────╯
