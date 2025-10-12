@@ -4,7 +4,7 @@
 
     Anti-social / Sensitive / Overthinker
 
-              Teen / 12
+              Teen
 
     Planet Lover and Space Lover
     Call Me Sun or Just My actual name!
