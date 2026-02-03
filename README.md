@@ -1,3 +1,3 @@
 check straw + rentry 👀
 
-https://rentry//Sakiix
+https://rentry.co//Sakiix
